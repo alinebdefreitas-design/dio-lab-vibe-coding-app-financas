@@ -120,6 +120,7 @@ Resultado Final no Lovable: https://smart-cash-aid.lovable.app
 ![Image](https://github.com/user-attachments/assets/e1505bc0-7dae-458a-b0c2-63414555132c)
 
 
+![Image](https://github.com/user-attachments/assets/56811007-f46c-4289-9d53-677b5a08305e)
 
 # Finança Fácil — Funcionalidades do Aplicativo
 
